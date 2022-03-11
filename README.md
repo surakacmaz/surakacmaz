@@ -13,4 +13,4 @@ I'm crazy about choir music and analogue photography!
 
 ## Contact
 
-- [Linkedin](https://www.linkedin.com/in/surakacmaz/)
+- [LinkedIn](https://www.linkedin.com/in/surakacmaz/)
